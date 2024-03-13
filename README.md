@@ -4,7 +4,7 @@
 - 💞️ I'm looking to work with people who want to make the world a better place
 - 📫 How to reach me? On Telegram
 - 😄 Pronouns: her
-- ⚡ Fun fact: I lived on the quiet ocean for over 10 years. And I know it's very beautiful
+- ⚡ Fun fact: I've lived on the Pacific Ocean for over 10 years. And I know it's very beautiful.
 
 <!---
 sasha-gura/sasha-gura is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
